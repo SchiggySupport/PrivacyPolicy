@@ -1,1 +1,1 @@
-# PrivacyPolicy
+"Happy Valentine's Day Momoko"  does  not collect  personal  data  including (but is  not limited to):  first and last name,  address, email address,  bank  account  details,  financial information,  or  any other information.
